@@ -1,1 +1,0 @@
-all this stuff is for safekeeps. did not work: "DNW" or has been replaced with a better method: "LEGACY"
